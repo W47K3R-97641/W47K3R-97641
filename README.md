@@ -1,5 +1,4 @@
-# W47K3R-97641-
-# 💻 Amar Chadli
+# 💻 Amar Chadli (Walker #97461)
 
 **Aspiring .NET Developer | EDM Lover | Walkers Community Member**
 
